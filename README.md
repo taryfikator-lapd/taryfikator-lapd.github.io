@@ -1,0 +1,1 @@
+# taryfikator-lapd.github.io
